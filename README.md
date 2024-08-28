@@ -4,7 +4,6 @@
 
 最好是epub的
 
-投稿智障:https://t.me/XiaoqiAbot
-
+投稿智障:
 
 会持续更新✌✌✌
